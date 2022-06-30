@@ -2,5 +2,7 @@
 
 Caso queiram entrar em contato:
 
-Linkedin: [Linkedin](https://www.linkedin.com/in/caique-stengel/)
-Instagram: [Instagram](https://www.instagram.com/caique.stengel/)
+[Linkedin](https://www.linkedin.com/in/caique-stengel/)
+
+
+[Instagram](https://www.instagram.com/caique.stengel/)
